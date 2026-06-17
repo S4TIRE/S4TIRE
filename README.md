@@ -6,4 +6,4 @@
 <p align=center>
 ${\color{#5a9f67}\text{Hi.}}$
 <p align=center>
-${\color{#5a9f67}\text{Clown-themed rentry soon... Meanwhile check .co/archicortex}}$
+${\color{#5a9f67}\text{Clown-themed rentry soon... }}$
