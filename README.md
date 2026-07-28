@@ -14,7 +14,7 @@ ${\color{#ae252e}\text{XVI ‎ ‎ ‎ ‎ }}$ ${\color{#2f8caa}\text{Boyflux �
 
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Give+You+Glory&size=12&duration=2000&pause=700&color=185487&center=true&width=435&lines=%E2%80%9CObservation+is+the+first+step+of+any+experiment%2C;but+observing+the+current+world+doesn't+satisfy+me.;It+lacks+an+important+dimension+-;-+that+of+time.%E2%80%9D)](https://git.io/typing-svg)
 
- <p align="left"><a href="https://rentry.co/-vittorino"><img src="https://files.catbox.moe/2rsyy4.PNG" width="85" height="auto" align="center"></img></a>  ‎  ‎   ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ <a href="https://pronouns.cc/@Puppets"><img src="https://files.catbox.moe/qavrpj.PNG" width="85" height="auto" align="center"></img></a>  ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎    ‎ ‎ ‎ ‎ <a href="https://www.tumblr.com/sage-0f-truth"><img src="https://files.catbox.moe/up3ofk.PNG" width="85" height="auto" align="center"></img></a>
+ <p align="left"><a href="https://rentry.co/webdottore"><img src="https://files.catbox.moe/2rsyy4.PNG" width="85" height="auto" align="center"></img></a>  ‎  ‎   ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ <a href="https://pronouns.cc/@Flores"><img src="https://files.catbox.moe/qavrpj.PNG" width="85" height="auto" align="center"></img></a>  ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎    ‎ ‎ ‎ ‎ <a href="https://www.tumblr.com/sage-0f-truth"><img src="https://files.catbox.moe/up3ofk.PNG" width="85" height="auto" align="center"></img></a>
 
    <table>
     <tr>
