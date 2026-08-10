@@ -7,12 +7,14 @@
 <p align=center>
 
 <p align=center>
-<img src="https://64.media.tumblr.com/99ee3bad26e05e1dc4a7540422fd03c5/a2f931b3f7b7ae62-d9/s75x75_c1/c99d4e1435d93253b42085b48da5ae1b7521e981.gifv" width="2%" alt="Banner"> ${\color{#1667a1}\text{Viktor ໃ}}$ ${\color{#ae252e}\text{ ‎ ‎ ₒᵤ ‎ ‎ }}$ ${\color{#2f8caa}\text{V(an) 𓏲ּ𝄢}}$
+<img src="https://64.media.tumblr.com/99ee3bad26e05e1dc4a7540422fd03c5/a2f931b3f7b7ae62-d9/s75x75_c1/c99d4e1435d93253b42085b48da5ae1b7521e981.gifv" width="2%" alt="Banner"> ${\color{#1667a1}\text{Viktor ໃ}}$ ${\color{#ae252e}\text{ ‎ ‎ ₒᵤ ‎ ‎ }}$ ${\color{#2f8caa}\text{Doc 𓏲ּ𝄢}}$ <img src="https://64.media.tumblr.com/8efd3d5941d08c6865f4b38a45874976/7569ccbbf2073f58-89/s75x75_c1/969345f6b30a8ad0f2fe83e2fa1929550c835469.gifv" width="2%" alt="Banner">
 <p align=center>
-${\color{#ae252e}\text{XVI ‎ ‎ ‎ ‎ }}$ ${\color{#2f8caa}\text{Boyflux ⠀⁺}}$ ${\color{#1667a1}\text{⠀He / Hy / It / Puppet}}$
+${\color{#ae252e}\text{XVI ‎ ‎ ‎ ‎ }}$ ${\color{#2f8caa}\text{Nonhuman ⠀⁺}}$ ${\color{#1667a1}\text{⠀He / Hy / It / Puppet}}$
 <img src="https://i.postimg.cc/XYzHJGxx/image-2024-05-23-211038903.png" width="30%" alt="Banner">
 
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Give+You+Glory&size=12&duration=2000&pause=700&color=185487&center=true&width=435&lines=%E2%80%9CObservation+is+the+first+step+of+any+experiment%2C;but+observing+the+current+world+doesn't+satisfy+me.;It+lacks+an+important+dimension+-;-+that+of+time.%E2%80%9D)](https://git.io/typing-svg)
+
+ <img src="https://64.media.tumblr.com/3a6b01b6a30cd0b63adba4c3cae918bc/4ee00c18467ac682-c8/s2048x3072/e3e1b476d1d6b8ffe684fe8520f0088b70ca75d2.pnj" width="37%" alt="Banner">
 
  <p align="left"><a href="https://rentry.co/webdottore"><img src="https://files.catbox.moe/2rsyy4.PNG" width="85" height="auto" align="center"></img></a>  ‎  ‎   ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ <a href="https://pronouns.cc/@Flores"><img src="https://files.catbox.moe/qavrpj.PNG" width="85" height="auto" align="center"></img></a>  ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎    ‎ ‎ ‎ ‎ <a href="https://www.tumblr.com/sage-0f-truth"><img src="https://files.catbox.moe/up3ofk.PNG" width="85" height="auto" align="center"></img></a>
 
@@ -28,7 +30,10 @@ ${\textsf{\color{#1667a1} ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎  Call }}$  ${\textsf{
 ${\color{#1667a1}\text{ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ Cuddles always allowed, unless stated otherwise.}}$
 <p align=left>
 ${\color{#1667a1}\text{ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎  ‎‎ ‎  ‎ W2I at all times, since I'm AFK a lot.}}$
+<p align=left>
 
+‎  ‎ 
+  ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎  ‎‎ ‎ 
    <table>
     <tr>
       <td>   
@@ -37,3 +42,8 @@ ${\textsf{\color{#1667a1} ‎ ‎ ‎‎ ‎ ‎  ‎  Must }}$  ${\textsf{\colo
     </tr>
   </table>
 <br>
+
+ <img src="https://64.media.tumblr.com/3a6b01b6a30cd0b63adba4c3cae918bc/4ee00c18467ac682-c8/s2048x3072/e3e1b476d1d6b8ffe684fe8520f0088b70ca75d2.pnj" width="37%" alt="Banner">
+
+
+
