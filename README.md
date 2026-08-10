@@ -14,7 +14,7 @@ ${\color{#ae252e}\text{XVI ‎ ‎ ‎ ‎ }}$ ${\color{#2f8caa}\text{Nonhuman �
 
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Give+You+Glory&size=12&duration=2000&pause=700&color=185487&center=true&width=435&lines=%E2%80%9CObservation+is+the+first+step+of+any+experiment%2C;but+observing+the+current+world+doesn't+satisfy+me.;It+lacks+an+important+dimension+-;-+that+of+time.%E2%80%9D)](https://git.io/typing-svg)
 
- <img src="https://64.media.tumblr.com/3a6b01b6a30cd0b63adba4c3cae918bc/4ee00c18467ac682-c8/s2048x3072/e3e1b476d1d6b8ffe684fe8520f0088b70ca75d2.pnj" width="37%" alt="Banner">
+ <img src="https://64.media.tumblr.com/3a6b01b6a30cd0b63adba4c3cae918bc/4ee00c18467ac682-c8/s2048x3072/e3e1b476d1d6b8ffe684fe8520f0088b70ca75d2.pnj" width="40%" alt="Banner">
 
  <p align="left"><a href="https://rentry.co/webdottore"><img src="https://files.catbox.moe/2rsyy4.PNG" width="85" height="auto" align="center"></img></a>  ‎  ‎   ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ <a href="https://pronouns.cc/@Flores"><img src="https://files.catbox.moe/qavrpj.PNG" width="85" height="auto" align="center"></img></a>  ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎    ‎ ‎ ‎ ‎ <a href="https://www.tumblr.com/sage-0f-truth"><img src="https://files.catbox.moe/up3ofk.PNG" width="85" height="auto" align="center"></img></a>
 
@@ -43,7 +43,7 @@ ${\textsf{\color{#1667a1} ‎ ‎ ‎‎ ‎ ‎  ‎  Must }}$  ${\textsf{\colo
   </table>
 <br>
 
- <img src="https://64.media.tumblr.com/3a6b01b6a30cd0b63adba4c3cae918bc/4ee00c18467ac682-c8/s2048x3072/e3e1b476d1d6b8ffe684fe8520f0088b70ca75d2.pnj" width="37%" alt="Banner">
+ <img src="https://64.media.tumblr.com/3a6b01b6a30cd0b63adba4c3cae918bc/4ee00c18467ac682-c8/s2048x3072/e3e1b476d1d6b8ffe684fe8520f0088b70ca75d2.pnj" width="40%" alt="Banner">
 
 
 
