@@ -7,7 +7,7 @@
 <p align=center>
 
 <p align=center>
-<img src="https://64.media.tumblr.com/99ee3bad26e05e1dc4a7540422fd03c5/a2f931b3f7b7ae62-d9/s75x75_c1/c99d4e1435d93253b42085b48da5ae1b7521e981.gifv" width="2%" alt="Banner"> ${\color{#1667a1}\text{Viktor ໃ}}$ ${\color{#ae252e}\text{ ‎ ‎ ₒᵤ ‎ ‎ }}$ ${\color{#2f8caa}\text{Doc 𓏲ּ𝄢}}$ <img src="https://64.media.tumblr.com/8efd3d5941d08c6865f4b38a45874976/7569ccbbf2073f58-89/s75x75_c1/969345f6b30a8ad0f2fe83e2fa1929550c835469.gifv" width="2%" alt="Banner">
+<img src="https://64.media.tumblr.com/99ee3bad26e05e1dc4a7540422fd03c5/a2f931b3f7b7ae62-d9/s75x75_c1/c99d4e1435d93253b42085b48da5ae1b7521e981.gifv" width="2%" alt="Banner"> ${\color{#1667a1}\text{Viktor ໃ}}$ ${\color{#ae252e}\text{ ‎ ‎ ₒᵤ ‎ ‎ }}$ ${\color{#2f8caa}\text{V(an) 𓏲ּ𝄢}}$ <img src="https://64.media.tumblr.com/8efd3d5941d08c6865f4b38a45874976/7569ccbbf2073f58-89/s75x75_c1/969345f6b30a8ad0f2fe83e2fa1929550c835469.gifv" width="2%" alt="Banner">
 <p align=center>
 ${\color{#ae252e}\text{XVI ‎ ‎ ‎ ‎ }}$ ${\color{#2f8caa}\text{Nonhuman ⠀⁺}}$ ${\color{#1667a1}\text{⠀He / Hy / It / Puppet}}$
 <img src="https://i.postimg.cc/XYzHJGxx/image-2024-05-23-211038903.png" width="30%" alt="Banner">
