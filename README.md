@@ -1,4 +1,4 @@
- <img src="https://64.media.tumblr.com/c3fd87295fa2f77baac0df75af66adb7/1fdadca01ee0d124-9a/s1280x1920/5eeefcb3aaa6e34a3326457b76990a172b55f696.pnj" width="50%" alt="Banner" align="left">
+ <img src="https://64.media.tumblr.com/c3fd87295fa2f77baac0df75af66adb7/1fdadca01ee0d124-9a/s1280x1920/5eeefcb3aaa6e34a3326457b76990a172b55f696.pnj" width="52%" alt="Banner" align="left">
    <tr><tr>
 
 </p>
