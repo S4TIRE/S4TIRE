@@ -1,4 +1,4 @@
- <img src="https://64.media.tumblr.com/c3fd87295fa2f77baac0df75af66adb7/1fdadca01ee0d124-9a/s1280x1920/5eeefcb3aaa6e34a3326457b76990a172b55f696.pnj" width="49%" alt="Banner" align="left">
+ <img src="https://64.media.tumblr.com/c3fd87295fa2f77baac0df75af66adb7/1fdadca01ee0d124-9a/s1280x1920/5eeefcb3aaa6e34a3326457b76990a172b55f696.pnj" width="50%" alt="Banner" align="left">
    <tr><tr>
 
 </p>
@@ -10,7 +10,9 @@
 <img src="https://64.media.tumblr.com/99ee3bad26e05e1dc4a7540422fd03c5/a2f931b3f7b7ae62-d9/s75x75_c1/c99d4e1435d93253b42085b48da5ae1b7521e981.gifv" width="2%" alt="Banner"> ${\color{#1667a1}\text{Viktor ໃ}}$ ${\color{#ae252e}\text{ ‎ ‎ ₒᵤ ‎ ‎ }}$ ${\color{#2f8caa}\text{V(an) 𓏲ּ𝄢}}$ <img src="https://64.media.tumblr.com/8efd3d5941d08c6865f4b38a45874976/7569ccbbf2073f58-89/s75x75_c1/969345f6b30a8ad0f2fe83e2fa1929550c835469.gifv" width="2%" alt="Banner">
 <p align=center>
 ${\color{#ae252e}\text{XVI ‎ ‎ ‎ ‎ }}$ ${\color{#2f8caa}\text{Nonhuman ⠀⁺}}$ ${\color{#1667a1}\text{⠀He / Hy / It / Puppet}}$
-<img src="https://i.postimg.cc/XYzHJGxx/image-2024-05-23-211038903.png" width="30%" alt="Banner">
+<p align=center>
+${\color{#ae252e}\text{SP7 ‎ ‎ ‎ ‎ }}$ ${\color{#2f8caa}\text{SP / SO 782}}$ ${\color{#1667a1}\text{⠀VLFE}}$ ${\color{#ae252e}\text{ ‎ ‎ ‎ ‎ EN(T)}}$ ${\color{#2f8caa}\text{ ‎ ‎ ‎ ‎ ILE}}$
+<img src="https://64.media.tumblr.com/63a174e449d2eff340c4fe5c1ace067a/a2e57fdce67f4232-a6/s400x600/5994ef153540581822b7dc308d656ba175da5d6f.pnj" width="30%" alt="Banner">
 
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Give+You+Glory&size=12&duration=2000&pause=700&color=185487&center=true&width=435&lines=%E2%80%9CObservation+is+the+first+step+of+any+experiment%2C;but+observing+the+current+world+doesn't+satisfy+me.;It+lacks+an+important+dimension+-;-+that+of+time.%E2%80%9D)](https://git.io/typing-svg)
 
