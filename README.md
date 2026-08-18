@@ -18,7 +18,7 @@ ${\color{#ae252e}\text{SP7 ‎ ‎ ‎ ‎ }}$ ${\color{#2f8caa}\text{SP / SO 78
 
  <img src="https://64.media.tumblr.com/3a6b01b6a30cd0b63adba4c3cae918bc/4ee00c18467ac682-c8/s2048x3072/e3e1b476d1d6b8ffe684fe8520f0088b70ca75d2.pnj" width="40%" alt="Banner">
 
- <p align="left"><a href="https://rentry.co/webdottore"><img src="https://files.catbox.moe/2rsyy4.PNG" width="85" height="auto" align="center"></img></a>  ‎  ‎   ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ <a href="https://pronouns.cc/@Flores"><img src="https://files.catbox.moe/qavrpj.PNG" width="85" height="auto" align="center"></img></a>  ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎    ‎ ‎ ‎ ‎ <a href="https://www.tumblr.com/sage-0f-truth"><img src="https://files.catbox.moe/up3ofk.PNG" width="85" height="auto" align="center"></img></a>
+ <p align="left"><a href="https://rentry.co/webdottore"><img src="https://files.catbox.moe/2rsyy4.PNG" width="85" height="auto" align="center"></img></a>  ‎  ‎   ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ <a href="https://bearerofheart.atabook.org/"><img src="https://files.catbox.moe/2629pv.PNG" width="85" height="auto" align="center"></img></a>  ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎    ‎ ‎ ‎ ‎ <a href="https://www.tumblr.com/sage-0f-truth"><img src="https://files.catbox.moe/up3ofk.PNG" width="85" height="auto" align="center"></img></a>
 
    <table>
     <tr>
