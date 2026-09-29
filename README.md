@@ -11,7 +11,7 @@
 <p align=center>
 ${\color{#ae252e}\text{XVI ‎ ‎ ‎ ‎ }}$ ${\color{#2f8caa}\text{Nonhuman ⠀⁺}}$ ${\color{#1667a1}\text{⠀He / Hy / It / Puppet}}$
 <p align=center>
-${\color{#ae252e}\text{SP7 ‎ ‎ ‎ ‎ }}$ ${\color{#2f8caa}\text{SP / SO 782}}$ ${\color{#1667a1}\text{⠀VLFE}}$ ${\color{#ae252e}\text{ ‎ ‎ ‎ ‎ EN(T)}}$ ${\color{#2f8caa}\text{ ‎ ‎ ‎ ‎ ILE}}$
+${\color{#ae252e}\text{SP7 ‎ ‎ ‎ ‎ }}$ ${\color{#2f8caa}\text{SP / SO 712}}$ ${\color{#1667a1}\text{⠀VLFE}}$ ${\color{#ae252e}\text{ ‎ ‎ ‎ ‎ EN(T)}}$ ${\color{#2f8caa}\text{ ‎ ‎ ‎ ‎ ILE}}$
 <img src="https://64.media.tumblr.com/63a174e449d2eff340c4fe5c1ace067a/a2e57fdce67f4232-a6/s400x600/5994ef153540581822b7dc308d656ba175da5d6f.pnj" width="30%" alt="Banner">
 
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Give+You+Glory&size=12&duration=2000&pause=700&color=185487&center=true&width=435&lines=%E2%80%9CObservation+is+the+first+step+of+any+experiment%2C;but+observing+the+current+world+doesn't+satisfy+me.;It+lacks+an+important+dimension+-;-+that+of+time.%E2%80%9D)](https://git.io/typing-svg)
